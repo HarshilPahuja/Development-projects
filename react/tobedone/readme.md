@@ -1,0 +1,7 @@
+THE BEST PROJECT OF THIS GENERATION
+
+THE GOAT OF THE GOATS
+THE KING OF THE KINGS
+A TO BE DONE LIST APP!!!!!!!!!!!!
+
+![image](https://github.com/user-attachments/assets/676c1c88-5d34-4c80-b07f-e95186548723)
